@@ -5,8 +5,8 @@
 - im a spawn dweller
 - whisper me if i dont answer im offtab a lot + i may take a long time to respond..esp cuz i accidentally fall asleep with ponytown open a lot
 - please dont be graphic with gore or ask first cuz it is rlly situational some things make me queasy HELP
-- my discord is still furretkechi let me know if you're sending me a request cuz i dont accept reqs from people if i cant tell who it is yknow
-- im socially awkward so if i come off as rude and avoiding you my bad broseph
+- my discord is still furretkechi lmk if youre sending me a request cuz i dont accept reqs from people if i cant tell who it is yknow
+- im socially awkward so if i come off as rude gen my bad broseph idk how to talk to ppl
 - despite that i luv when ppl who share interests sit with me so dont be scared unless ur scared of awkward silence
 - i will block you if you sit/stand on top of me too long its not a touch trigger or anythin just annoys me 🥀
 - pls ask to take inspo from my ponies...i likely wont mind it but it kinda freaks me out when someones a 99.9% replica of something i made unprompted if that makes sense lol
