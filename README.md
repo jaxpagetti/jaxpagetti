@@ -11,4 +11,4 @@
 <br></br>
 ![cd](https://github.com/user-attachments/assets/d46bc875-a837-44cf-b8ae-7ea49b3dbf43)
 <br></br>
-![](https://jaxpagetti.com/ghpvc/?username=your-github-username&color=pink)
+![](https://komarev.com/ghpvc/?username=jaxpagetti&color=pink)
