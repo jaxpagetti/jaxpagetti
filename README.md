@@ -13,6 +13,7 @@
 - probs doesnt matter now that i have a diff user but there was someone trying to impersonate me in the genshit area i was furretkechi for yrs just an fyi incase they try to frame me again or some shit help
 - [guestbook](https://furretkechi.123guestbook.com) is dead as hell but im keeping it up cuz someone got mad at me and its so funny
 - i like to play n draw
+- dont roleplay with me pls i dont roleplay its scawy for me sorry
 <br></br>
 ![cd](https://github.com/user-attachments/assets/d46bc875-a837-44cf-b8ae-7ea49b3dbf43)
 <br></br>
