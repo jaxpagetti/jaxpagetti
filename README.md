@@ -3,7 +3,7 @@
 ## PLEASE do not ask me for supporter perks!!! i will never say yes!!! pay for it yourself this is my money!!!! i am at my limit!!!! i cant take it anymore!!!! release me!!!! ദ്ദി◝ ⩊ ◜.ᐟ</br>
 ### i used to be <ins>furretkechi</ins> but my github got hacked along with a lot of my other things so this is my new account since i dont have access to it anymore :(</br>
 - im at spawn 99.5% of the time (18+)
-- persona fandom pls dont interact with me. theres just certain people i dont want to accidentally get reinvolved with and theyre some how friends with half the persona fandom on 18+. thanks for understanding
+- persona fandom pls dont interact with me. theres just certain people i dont want to accidentally get reinvolved with. thanks for understanding
 - if i am on safe server im not accepting friend reqs unless ik ur 18+ (unless i alr know u)
 - pls look at my [strawpage](https://jaxpaghetti.straw.page) it took me roughly 20 hours </3 (i may respond slowly)
 - i like funnybunny and shuake so if either irk you then hide me im not arguing its not my problem you will waste your time ive seen every argument i couldnt care less
