@@ -5,7 +5,7 @@
 ### about me  ☆</br>
 - pls look at my [strawpage](https://jaxpaghetti.straw.page) it took me roughly 20 hours </3 (i may respond slowly)
 - i like funnybunny and shuake so if either irk you then hide me im not arguing its not my problem you will waste your time ive seen every argument i couldnt care less
-- im socially awkward so if i come off as rude/standoffish gen my bad broseph idk how to talk to ppl and can take awhile to warm up
+- im socially awkward so if i come off as rude/standoffish gen my bad broseph idk how to talk to ppl and can take awhile to warm up some times
 - whisper me if i dont answer im offtab a lot + i likely will take a long time to respond
 
 ### dni/byi  ☆
