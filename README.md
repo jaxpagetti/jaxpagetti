@@ -18,7 +18,7 @@
 
 ### other  ☆
 - ik im awkward but i luv when ppl who share interests sit with me so dont be scared unless ur scared of awkward silence
-- i block/hide freely because i dont have a lot of patience with people and i will block if u stand on me too long
+- i block/hide freely because i dont have a lot of patience with people that annoy me and i will block if u stand on me too long
 - pls ask to take inspo from my ponies ive gotten framed for things from someone impersonating me so id rather you ask me
 - [guestbook](https://furretkechi.123guestbook.com) is dead but the hate msg on it is funny so im keeping it on my github
 - im at spawn 99.5% of the time (18+)
