@@ -6,7 +6,6 @@
 - pls look at my [strawpage](https://jaxpaghetti.straw.page) it took me roughly 20 hours </3 (i may respond slowly)
 - i like funnybunny and shuake so if either irk you then hide me im not arguing its not my problem you will waste your time ive seen every argument i couldnt care less
 - im socially awkward so if i come off as rude/standoffish gen my bad broseph idk how to talk to ppl and can take awhile to warm up some times
-- whisper me if i dont answer im offtab a lot + i likely will take a long time to respond
 
 ### dni/byi  ☆
 - tadc fans iwc u guys are genuinely on the thinnest ice. dni if u hate any tadc character especially if hating them is your entire personality
@@ -23,6 +22,7 @@
 - pls ask to take inspo from my ponies multiple ppl have pretended to be me so id rather know
 - [guestbook](https://furretkechi.123guestbook.com) is dead but the hate msg on it is funny so im keeping it on my github
 - im at spawn 99.5% of the time (18+)
+- whisper me if i dont answer im offtab a lot + i likely will take a long time to respond
 
 ![cd](https://github.com/user-attachments/assets/d46bc875-a837-44cf-b8ae-7ea49b3dbf43)
 <br></br>
