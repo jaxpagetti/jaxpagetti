@@ -15,14 +15,14 @@
 - persona fandom pls dont interact with me. theres just certain people i dont want to accidentally get reinvolved with. thanks for understanding
 - im blocking/ignoring ppl who try to debate and get a rise out of me over the tadc finale i dont care about ur copy and pasted tiktok comment section argument i get second hand embarrassment
 - dont roleplay in a serious manner with me pls i will likely ignore or hide u if u keep pushing it i dont like rping
+- if i am on safe server im not accepting friend reqs unless ik ur 18+ (unless i alr know u)
 
 ### other  ☆
 - ik im awkward but i luv when ppl who share interests sit with me so dont be scared unless ur scared of awkward silence
 - i block/hide freely because i dont have a lot of patience with people that annoy me and i will block if u stand on me too long
-- pls ask to take inspo from my ponies ive gotten framed for things from someone impersonating me so id rather you ask me
+- pls ask to take inspo from my ponies multiple ppl have pretended to be me so id rather know
 - [guestbook](https://furretkechi.123guestbook.com) is dead but the hate msg on it is funny so im keeping it on my github
 - im at spawn 99.5% of the time (18+)
-- if i am on safe server im not accepting friend reqs unless ik ur 18+ (unless i alr know u)
 
 ![cd](https://github.com/user-attachments/assets/d46bc875-a837-44cf-b8ae-7ea49b3dbf43)
 <br></br>
